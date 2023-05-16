@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Sobre mim:
 Meu nome é Victor Silveira Rodrigues😉<br>💻Estudo na Escola S (Senai) e estou cursando desenvolvimento de sistemas<br><br>
 
 
